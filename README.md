@@ -13,6 +13,6 @@ I am creating content on GitHub and on YouTube.
 
 Please visit my YouTube channel here: https://www.youtube.com/channel/UCwjFwpvivxMztxUF4goV_Ww
 
-I am also taking online courses through Udacity.
+I am also taking online courses through Udacity and Udemy.
 
 Thank you for your time.
